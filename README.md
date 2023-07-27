@@ -1,2 +1,2 @@
-# Website_Sanskriti
-"Sanskriti" - the tradition goes on
+# "Sanskriti" - the tradition goes on...
+Official Website of Cultural Committee of Meerut Institute of Engineering and Technology, Meerut
